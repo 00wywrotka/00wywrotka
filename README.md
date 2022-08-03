@@ -1,0 +1,3 @@
+- 👋 AD tech
+- 👀 Minecraft server creator
+- 🌱 Have a nice day!
